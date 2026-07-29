@@ -8,6 +8,8 @@ A good monitor arm is one of the fastest ways to improve your home office ergono
 
 ## 1. Full-Range Gas Spring Monitor Arm
 
+[Amazon listing](https://www.amazon.com/dp/B07T5SY43L?tag=worksmart0e9-20)
+
 This arm is designed for people who want wide adjustability without constantly readjusting once it’s set. It uses a gas spring mechanism to make raising, lowering, and tilting your monitor smooth and stable.
 
 - **Best for:** People with multiple monitors or who frequently switch between sitting and standing.
@@ -17,6 +19,8 @@ This arm is designed for people who want wide adjustability without constantly r
 
 ## 2. Smooth-Operation Single Monitor Arm
 
+[Amazon listing](https://www.amazon.com/dp/B08B4KBST6?tag=worksmart0e9-20)
+
 This option is known for how smooth and quiet its adjustment is. If you like to reposition your screen often during the day—closer for detail work, further for reading—this is a solid choice.
 
 - **Best for:** People who value quiet, effortless movement and use one primary monitor.
@@ -25,6 +29,8 @@ This option is known for how smooth and quiet its adjustment is. If you like to 
 - **Typical use case:** Knowledge workers with a single 24–27” monitor who want a clean, minimal desk.
 
 ## 3. Functional and Style-Focused Monitor Arm
+
+[Amazon listing](https://www.amazon.com/dp/B0FL2F3W34?tag=worksmart0e9-20)
 
 This arm blends solid functionality with a cleaner look. It’s not trying to be the most adjustable option on the market, but it’s reliable and looks good while doing it.
 
